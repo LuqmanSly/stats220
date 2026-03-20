@@ -6,6 +6,7 @@
 3. Go to the gym with friends
 4. Train martial arts at city kickboxing
 5. Play soccer or basketball with friends and family
+
    My top 3 food and beverage picks would be
    * kombucha drinks
    *  sparkling water
