@@ -11,3 +11,5 @@
    * kombucha drinks
    *  sparkling water
    *   kabli palou (cultural chicken and rice dish)
+
+![](https://i.pinimg.com/originals/6f/40/25/6f4025f83d11fbb560ed453e98d80104.gif)
