@@ -4,8 +4,8 @@
 1. Go on long night rides
 2. Have bbq's and cookouts wirh family
 3. Go to the gym with friends
-4. train martial arts at city kickboxing
-5. play soccer or basketball with friends and family
+4. Train martial arts at city kickboxing
+5. Play soccer or basketball with friends and family
    My top 3 food and beverage picks would be
    * kombucha drinks
    *  sparkling water
